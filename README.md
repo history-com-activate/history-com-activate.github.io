@@ -1,4 +1,4 @@
-# History.com/activate - How to activate the History Channel on Roku
+# History.com/activate
 
 
 If you're a fan of the History Channel, you have plenty of options to watch it without having to subscribe to any monthly service. You can watch it on Roku, Apple TV, and Fire TV by activating the link history.com/activate.
